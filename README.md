@@ -1,1 +1,1 @@
-Yeh sab moh hai 
+Yeh sab moh tha
